@@ -5,6 +5,6 @@ Hello Humans
 
 Foxa Here, how about your today ? hope everything will be okay 
 
-Just say hello from foxa 
+Just say hello from Foxa 
 
 Muchas Gracias
